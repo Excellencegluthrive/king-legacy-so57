@@ -1,4 +1,4 @@
-
+Download Free smart king legacy Scripts for king legacy today and unlock infinite resources and esp for a superior gaming experience. Whether you're a beginner or a pro, this
 
 
 
